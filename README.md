@@ -1,1 +1,1 @@
-Landing Page
+Smartwatch Pro
